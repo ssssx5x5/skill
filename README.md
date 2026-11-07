@@ -1,2 +1,2 @@
 # skill
-idk
+just use the zip btw
